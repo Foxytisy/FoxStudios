@@ -1,5 +1,5 @@
 # FoxStudios
-Fox Studios Main from Foxytisy || Contact: Foxytisy@gmail.com
+Fox Studios Main from Foxytisy || Contact: m@treiman.is
 
 
 Welcome to Fox Studios. This is all opensource code but on one exception. You must shout me out of just add credit to a file that you are using.
