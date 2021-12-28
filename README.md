@@ -10,7 +10,7 @@ Stay tuned and this README.md will change!
 
 Foxytisy.
 
-More Socials || Youtube https://www.youtube.com/channel/UCbMe4PpTUkOCfp0OpXkrrOA || Gmail Foxytisy@gmail.com (NOTE! This might take awhile to have a response from me! Sorry :D)
+More Socials || Youtube https://www.youtube.com/channel/UCbMe4PpTUkOCfp0OpXkrrOA || Gmail m@treiman.is (NOTE! This might take awhile to have a response from me! Sorry :D)
 -------------|| Website https://foxstudios.webflow.io/ || Thanks!
 
 
